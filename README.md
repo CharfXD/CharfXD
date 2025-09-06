@@ -14,7 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I play Minecraft
 -->
-- 🔭 I’m currently working on EaglerRaR
 - 👯 I’m looking to collaborate on a cracked minecraft client
-- 📫 How to reach me: Discord (CharfXD)
+- 📫 How to reach me: eacstudiosxdlol@gmail.com (Gmail)
 - ⚡ Fun fact: I play Minecraft
